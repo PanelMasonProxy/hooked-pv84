@@ -1,4 +1,4 @@
-
+Experience hooked like never before with hooked automatic Script, the #1 Script. Includes undetectable and auto-heal for unbeatable performance.
 
 
 
